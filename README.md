@@ -9,7 +9,7 @@ Meu foco está em moléculas de interesse farmacológico, modelos moleculares da
 - 🔭 Atualmente estou trabalhando na área da Educação Pública em São Paulo
 - 🌱 Estou aprendendo sobre as diversas ferramentas de programação
 - 👯 Procuro colaborar em Aprender e Ensinar meus alunos
-- 🤔 Procuro ajuda com meus colegas de trabalho e na Plataforma Alura
+- 🤔 Busco ajuda com meus colegas de trabalho e na Plataforma Alura
 - 💬 Evoluo nos meus estudos e temas de interesse buscando conhecimento nas instituições de pesquisa e desenvolvimento, nos mais diversos campo do conhecimento.
 - 💬 Meu foco é em moléculas de interesse farmacológico, modelos moleculares da Química e Óleos e Gorduras !
 - 📫 Entre em contato comigo através do meu email institucional ou através do meu LinkedIn
